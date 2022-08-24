@@ -1,5 +1,5 @@
 The Project Was done by Sevin Senanayake (Me)
-This project Belongs to be and I copywrited by : Edit can be made but share it with my permission. 
+This project Belongs to me and copywrited by me: Edit can be made but share it with my permission. 
 
 My Discord : LynxNX#7035
 
